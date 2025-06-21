@@ -1,7 +1,8 @@
 <h2>黑马磁力官网入口 - 专业的种子搜索磁力链接搜索最新网站网页网址</h2>
 <p>黑马磁力是一个专业的在线种子和磁力链接搜索引擎，专注于从DHT网络爬取种子和磁力链接。它目前索引了上千万的磁力链接，资源涵盖了电影、剧集、音乐、动漫、软件等多个领域。用户无需注册即可使用搜索功能，提供中文简体版界面，能够多维度对结果进行排序推荐，并提供流畅的下载体验。该网站致力于通过强大的搜索算法和技术，帮助用户快速找到所需的资源，同时注重用户体验和隐私保护。</p>
-<p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5755.html"><strong>黑马磁力最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://heimacili.litxdh.com"><strong>黑马磁力最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
 <p><strong>资源丰富</strong>：索引了上千万的磁力链接，涵盖电影、剧集、音乐、动漫、软件等各类资源。</p>
